@@ -12,4 +12,4 @@ The best part? This book is absolutely free and created purely for the convenien
 In "Presidential Portraits: From Washington to Biden," you'll discover the stories of courage, determination, and leadership that have shaped America throughout its history. I'm confident that this book will not only satisfy your curiosity but also inspire you to dive deeper into the lives of these extraordinary individuals who have led the United States. So, join me on this journey through history, and together, let's explore the remarkable stories of the men who have held the highest office in the land.
 
 ## Download
-This book will be released April 17
+This book will be released April 17 free for everyone to read!
